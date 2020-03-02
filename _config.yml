@@ -1,17 +1,17 @@
 # Built with Jekyll 3.6.0
 
 # Setup
-title:               Ed.
-tagline:             'a jekyll theme for minimal editions'
-description:         'Ed is a Jekyll theme designed for textual editors based on minimal computing principles, and focused on legibility and flexibility.'
-url:                 'http://minicomp.github.io'
-baseurl:             '/ed'
+title:               Onitsha Market Literature
+tagline:             'Stories, plays, and pamphlets from the market town of Onitsha, Nigeria'
+description:         'Onitsha Market Literature consists of stories, plays, advice and moral discourses published primarily in the 1960s by local presses in the lively market town of Onitsha, an important commercial site in the Igbo-speaking region of southeastern Nigeria. In the fresh and vigorous genre of Onitsha Market Literature, the commoner wrote pulp fiction and didactic handbooks for those who perused the bookstalls of Onitsha Market, one of Africa’s largest trading centers.'
+url:                 'http://idrhku.github.io'
+baseurl:             '/onitsha-market'
 
 # About/contact
 author:
-  name:              Alex Gil
-  url:               https://twitter.com/elotroalex
-  email:             colibri.alex@gmail.com
+  name:              James Yeku
+  url:               https://twitter.com/jamesyeku
+  email:             jyeku@ku.edu
 
 # Color scheme. Options: red, orange, magenta, cyan, blue, brown
 color-scheme:
