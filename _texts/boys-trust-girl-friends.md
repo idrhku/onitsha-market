@@ -19,7 +19,7 @@ publication-date:
 
 ----
 
-![cover image](../assets/img/boys-trust-girl-friends.png)
+![cover image](/assets/img/boys-trust-girl-friends.png)
 
 ## PREFACE
 
