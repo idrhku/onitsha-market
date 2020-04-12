@@ -9,17 +9,7 @@ publication-date:
 ---
 
 
-# WHY
-
-# BOYS DON’T
-
-# TRUST THEIR
-
-# GIRL FRIENDS
-
-----
-
-![cover image](/assets/img/boys-trust-girl-friends.png)
+![cover image]({{ site.baseurl }}/assets/img/boys.png)
 
 ## PREFACE
 
