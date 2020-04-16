@@ -27,7 +27,7 @@ N. O. NJOKU,
                         
 ## CONTENTS
 
- | Page
+| | Page
 				   
 What are girls love towards boys? | 4
 What Girls like to get from Boys | 5
