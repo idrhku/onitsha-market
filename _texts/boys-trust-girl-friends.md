@@ -24,16 +24,17 @@ N. O. NJOKU,
 (The Author)
 
 ----
-                        CONTENTS
-	                      
-                                   Page
+                        
+## CONTENTS
+
+ | Page
 				   
-What are girls love towards boys?   4
-What Girls like to get from Boys    5
-Begging of money 	            5
-The life of Girls 	            6
-Girls are Pretenders                6
-My advice to young Boys             6
-Love letters                        8
-Pocket Money                        9
+What are girls love towards boys? | 4
+What Girls like to get from Boys | 5
+Begging of money | 5
+The life of Girls | 6
+Girls are Pretenders | 6
+My advice to young Boys | 6
+Love letters | 8
+Pocket Money |9
 
