@@ -28,7 +28,6 @@ N. O. NJOKU,
 
 ----
                         
-## CONTENTS
 
 ## WHAT ARE GIRLS' LOVE TOWARDS BOYS?
 
