@@ -82,3 +82,22 @@ Girls and women in general, are pretenders. They are diplomatic and trickish. Th
 5.	It is good for us to marry between the age of thirty to thirty-five years, by that time we might have got some dresses and some few shillings to manage the family.
 6.	Really to marry an expensive lady is a risk because the woman can never think of helping the man in any way at-all. Rather she will be interested at remaining in the house from morning till night because her husband has money and can maintain her very well.
 7.	Of course, really, women are very fond of pride also with their sweet mouths and beauty are, just like dead bodies of which if you keep on crying according to how they keep their faces, you will be tired of crying.
+
+
+## LOVE LETTERS
+
+Let us read some love letters being written by our girls and boys. The first letter reads thus:-
+											                                                         
+                                                                    Beatrice Okoye, Sacred Heart School, Okija.
+															                                                                     21st Noy. 1960.
+My dear Sweetheart,
+
+As I have occasionally told you that you are my dearest as far as love is concerned, it is my hope that you will appreciate this word.
+Please my sweetheart the Xmas. is fastly coming, and I have nothing to celebrate it. I would be grateful if you could purchase me one beautiful hand watch and size 6 "Lama" shoe from Bata Shoe Company. This shoe is the latest model. It cost £3 : 15s 0d (three pounds fifteen shillings)
+
+I hope my dearest, that you will try to buy these things for me. Other boys have been begging me to tell them my needs for them to buy them for me. I bluntly refused to tell them because. I know they are coming for friendship. I have believed in you and no other person in spite df big offers gift from other boys.
+                                                                        													Yours,
+													                                                                        most affectionate,
+															                                                                      "Beaty"
+
+Comment: The above is a very bad letter. Where will the boy written this letter get the money to buy ail these things for Beatrice Okoye. The boy himself is a school boy but the girl fails to realise this.
