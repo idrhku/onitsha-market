@@ -58,6 +58,14 @@ Who are those that girls like? In my opinion, those people are Car owners, top C
 
 Do girls like ruck pushers, load-carriers, labourers and other people in petty jobs? Girls do not like this people because they can’t meet up with their frequent demands.
 
-                                        ## BEGGING OF MONEY
+## BEGGING OF MONEY
 
 One of the numerous deplorable things which our girls do, is begging our boys money especially at Bazaars. This is very bad. It induces some of our boys to steal from people in order to buy things for girls at Bazaars. Girls like to attend Bazaars
+
+## THE LIFE OF GIRLS
+Let us look into the life of girls. A boy who is born the same day with a girl shall be stronger than the girl but the girl shall be more diplomatic and cunning than the boy. When a girl likes you, you shall not know because she shall pretend as if she dislikes you. 
+A girl can resist an attraction of a boy but a boy will hardly resist the attraction of a girl.
+
+## GIRLS ARE PRETENDERRS
+
+Girls and women in general, are pretenders. They are diplomatic and trickish. They will see men they like but instead of showing that they like men, they take off their eyes and pass. They will want the men to approach them first. Our boys are too weak in resisting girl’s attractions. Whenever a boy sees a girl he likes, he starts at that spot to show the girl that he likes her too much. He cannot just pretend that he dislikes the girl. It is because of this weakness of our boys in resisting the attraction of the girls that have made the girls to be bluffing and duping our boys.
