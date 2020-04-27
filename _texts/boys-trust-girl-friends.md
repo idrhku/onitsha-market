@@ -1,6 +1,6 @@
 ---
 layout: narrative
-title: "_Why Boys Don't Trust Their Girl Friends_"
+title: *"Why Boys Don't Trust Their Girl Friends"*
 author: N. O. Njoku
 editor: James Yeku
 rights: 
