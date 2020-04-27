@@ -89,8 +89,8 @@ Girls and women in general, are pretenders. They are diplomatic and trickish. Th
 Let us read some love letters being written by our girls and boys. The first letter reads thus:-
 											                                                         
                                 ## Beatrice Okoye, Sacred Heart School, 
-								Okija.
-								21st Noy. 1960.
+							Okija.
+							21st Noy. 1960.
 
 															              
 My dear Sweetheart,
