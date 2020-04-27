@@ -28,7 +28,7 @@ N. O. NJOKU,
 
 ----
                         
-## WHAT ARE GIRLS' LOVE TOWARDS BOYS?
+## What are Girl's Love towards Boys? 
 
 Girls love towards boys is only, to eat them and get their needs from them, mostly to get clothes 
 and money because with out clothes girls can not be regarded.
@@ -47,8 +47,7 @@ the person. If the person fails to meet up, they
 run forty-forty, from the person.
 
 
-
-## WHAT GIRLS LIKE TO GET FROM BOYS
+## What Girls Like to Get from Boys 
 
 Girls of this time are girls with bad fashion of manner. They like to make friends with boys but the very motive behind their desire to make friends with boys is most regrettable. What does our girls need from boys and men in general ? And what does boys need from girls and women in general? Girls need money, cloth, sweet, gold, wrist watch, etc., from boys and men in general. But boys do not need much from girls and women. They need only love and sincerity from women.
 
@@ -58,14 +57,28 @@ Who are those that girls like? In my opinion, those people are Car owners, top C
 
 Do girls like ruck pushers, load-carriers, labourers and other people in petty jobs? Girls do not like this people because they can’t meet up with their frequent demands.
 
-## BEGGING OF MONEY
+
+## Begging of Money
 
 One of the numerous deplorable things which our girls do, is begging our boys money especially at Bazaars. This is very bad. It induces some of our boys to steal from people in order to buy things for girls at Bazaars. Girls like to attend Bazaars
 
-## THE LIFE OF GIRLS
+
+## The Life of Girls
 Let us look into the life of girls. A boy who is born the same day with a girl shall be stronger than the girl but the girl shall be more diplomatic and cunning than the boy. When a girl likes you, you shall not know because she shall pretend as if she dislikes you. 
 A girl can resist an attraction of a boy but a boy will hardly resist the attraction of a girl.
 
-## GIRLS ARE PRETENDERRS
+
+## Girls are Pretenderrs 
 
 Girls and women in general, are pretenders. They are diplomatic and trickish. They will see men they like but instead of showing that they like men, they take off their eyes and pass. They will want the men to approach them first. Our boys are too weak in resisting girl’s attractions. Whenever a boy sees a girl he likes, he starts at that spot to show the girl that he likes her too much. He cannot just pretend that he dislikes the girl. It is because of this weakness of our boys in resisting the attraction of the girls that have made the girls to be bluffing and duping our boys.
+
+
+## My Advice to Young Boys  
+
+1.	Please my dear fellow men let me tell you the money which you will give to harlots you better use it for dressing or to use it to for food because giving it to them has no profit rather you loose your money and energy.
+2.	Infact, they are butterflies and we are their flowers. They can come and suck us at any time they feel like doing so, not minding us whether we are dying or not.
+3.	Another thing is this, however a woman is rich unless she gets a penny from a man she will never be satisfied in her life. You know women are pests and they are bent on sucking the men untill he becomes tired if he doesn’t take care.
+4.	When will it be good for us to marry? Now listen. It is not good for us to marry at a very old age, and at the youngest age. Really we should marry at the ripe age so that we may enjoy the benefit of marriage.
+5.	It is good for us to marry between the age of thirty to thirty-five years, by that time we might have got some dresses and some few shillings to manage the family.
+6.	Really to marry an expensive lady is a risk because the woman can never think of helping the man in any way at-all. Rather she will be interested at remaining in the house from morning till night because her husband has money and can maintain her very well.
+7.	Of course, really, women are very fond of pride also with their sweet mouths and beauty are, just like dead bodies of which if you keep on crying according to how they keep their faces, you will be tired of crying.
