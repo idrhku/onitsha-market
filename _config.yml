@@ -2,7 +2,7 @@
 
 # Setup
 title:                Onitsha Market Literature 2.0  
-tagline:             'Digital editions of stories, plays, and pamphlets from the market town of Onitsha, Nigeria'
+tagline:             'A digital edition of stories, plays, and pamphlets'
 description:         'Colonial-era print culture: Onitsha Market Literature consists of stories, plays, advice and moral discourses published primarily in the 1960s by local presses in the lively market town of Onitsha, an important commercial site in the Igbo-speaking region of southeastern Nigeria. In the fresh and vigorous genre of Onitsha Market Literature, the commoner wrote pulp fiction and didactic handbooks for those who perused the bookstalls of Onitsha Market, one of Africa’s largest trading centers.'
 url:                 'http://idrhku.github.io'
 baseurl:             '/onitsha-market'
