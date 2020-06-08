@@ -17,6 +17,8 @@ publication-date:
 ## PREFACE
 
 
+
+
 This pamphlet captioned why boys don’t trust their girl friends is the first of its kind specially to deliver boys from the hands of our girls, who are in the habit of duping, bluffing and asking for much gifts from the boys.  
 
 This pamphlet makes several revelations. It is very interesting and wonderful. It is the first and best of its kind. 
@@ -106,3 +108,28 @@ Please my sweetheart the Xmas. is fastly coming, and I have nothing to celebrate
                                                                         													
 
 Comment: The above is a very bad letter. Where will the boy written this letter get the money to buy ail these things for Beatrice Okoye. The boy himself is a school boy but the girl fails to realise this.
+
+Here is the second letter from a girl-student to her boyfriend. The girl is Mabel Obiageli Uchendu. She writes to Boniface Odita.
+
+>Federal Grammar School, Lagos
+>22nd January, 1961.
+
+My dearest Bonny,
+POCKET MONEY
+
+I am badly in-need of pocket money, please send me five pounds as quickly as possible. Last time you promised me “heaven and earth” but no single one you did fulfil. You see I don’t want such a thing. If you could send me this £5 (five pounds), I will forgive you for the unfulfilled promise. I want to hear from you at the earliest time.
+
+Yours,
+“You know”
+
+Mabel Obiageli Uchendu.
+
+The next letter is the reply of Boniface Odita to his girlfriend, Mabel Obiageli Uchendu. His letter reads.
+
+>St. Augustine Grammar School,
+>P. O. Box 18, Ogidi,
+>E. Nigeria, 30th January, 1961.
+
+My dearest Mabel,
+
+I have received your letter dated the 22nd January, 1961, but regret to inform you that I have no money to give you. The sum of £5 ( five pounds) is too much and I cannot afford it.
